@@ -8,13 +8,12 @@ I can arrange retrieval from anywhere in the world.
 
 ## 🌍 Contact
 
-**Email:** your-email@example.com  
-**Phone / WhatsApp:** +XX XX XXX XXXX  
-**Telegram:** @yourusername  
-**Optional anonymous message form:** https://your-form.example
+**Email:** varatin.george@gmail.com  
+**Phone / WhatsApp:** +41 76 309 20 03   
+**Telegram:** @mr_tyrell_w  
+**Optional anonymous message form:** https://forms.gle/QTa2E4g53XimXYtf8  
 
 ---
-
 ---
 
 # 🇬🇧 English
